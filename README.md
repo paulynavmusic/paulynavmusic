@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @paulynavmusic
+- I’m 16 yo
 - 👀 I’m interested in learning continuosly, make music and develop cool stuff
 - 🌱 I’m currently learning how to live, haha
 - 💞️ I’m looking to collaborate on young christian bands
